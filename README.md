@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sirven
+- 👀 I’m interested in coding D&D Drawing and Basketball
+- 🌱 I’m currently learning c++ python and many more
+- 📫 How to reach me: my email: jedrusiakwiktorwrk@gmail.com
